@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vivek-believer
+- 👋 Hi, I’m @vivek
 - 👀 I’m interested in evrything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everything
